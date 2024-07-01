@@ -1,4 +1,4 @@
-# Thomas Tesa - Data Science and Analytcs Profile! 👋
+# Thomas Joaquim - Data Science and Analytcs Profile! 👋
 
 ## About Me
 
